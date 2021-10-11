@@ -1,1 +1,0 @@
-# Simohara.github.io
